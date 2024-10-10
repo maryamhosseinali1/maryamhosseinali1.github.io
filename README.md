@@ -6,4 +6,4 @@ I'm a final-year Computer Science student at the University of Tehran, specializ
 
 ## 📫 How to reach me:
 - Email: [maryam.hosseinali12.com](mailto:maryam.hosseinali12@gmail.com)
-- LinkedIn: [(https://www.linkedin.com/in/maryam-hosseinali-20ba97285)]([https://linkedin.com/in/maryam](https://www.linkedin.com/in/maryam-hosseinali-20ba97285))
+- LinkedIn: [maryam_hosseinali](https://www.linkedin.com/in/maryam-hosseinali-20ba97285)
